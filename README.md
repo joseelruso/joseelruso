@@ -3,7 +3,7 @@
 
 🚀 Lo que ofrezco:
 ### full-stack , Interés por la tecgnología y el aprendizaje continuo
-![https://github.com/joseelruso](https://raw.githubusercontent.com/joseelruso/joseelruso/master/jose_programador.png)
+![https://github.com/joseelruso](https://raw.githubusercontent.com/joseelruso/joseelruso/master/Jose programador.png)
 
 ✨ Habilidades Técnicas:
 
